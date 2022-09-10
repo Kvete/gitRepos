@@ -2,6 +2,6 @@
 
 *peace*
 
-**world**
+МИРРРРРР
 
 ## life
